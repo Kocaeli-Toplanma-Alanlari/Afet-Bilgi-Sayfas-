@@ -1,0 +1,1 @@
+# Afet-Bilgi-Sayfas-
